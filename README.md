@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @angeloS-98
+- 👀 I’m interested in AI & Robotics and Roboethic
+- 🌱 I’m currently learning computer science (master degree) at the Università degli Studi di Palermo
+- 📫 How to reach me: spam.angelo98@gmail.com
